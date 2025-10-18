@@ -5,7 +5,7 @@
 <img width="640" height="350" alt="Untitled46_20251017192816" src="https://github.com/user-attachments/assets/508553c4-ed60-4f53-b361-6db7091e0a2f" />
 ‎‎‎‎‎
 
-![](https://komarev.com/ghpvc/username=brainwashedcia&label=_+++graves+++_&color=#f6e6e2&style=plastic&base=69)<p align=center
+![](https://komarev.com/ghpvc/username=brainwashedcia&label=_+++graves+++_&color=#f6e6e2&style=plastic&base=69)
 
 
 <!--
