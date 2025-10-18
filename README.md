@@ -1,7 +1,7 @@
 <img width="640" height="297" alt="Untitled48_20251017192510" src="https://github.com/user-attachments/assets/5daea909-6c93-4fea-93b2-7e22bedd2065" />
 
-‎ ͏ ͏͏͏͏͏͏ ͏͏͏͏͏͏ ͏͏͏͏͏͏⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ͏͏͏͏͏͏ ͏͏͏͏͏͏${\color{*#2596be*}' your men .. have been *DETAINED.* '{}}$
-
+‎ ͏ ͏͏͏͏͏͏ ͏͏͏͏͏͏ ͏͏͏͏͏͏⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ͏͏͏͏͏͏ ͏ ${\color{#906b92}" ͏͏͏͏͏͏your \space \color{#464575} men \space \color{#a87b9f} has, \space \color{#70608b}been... \space \color{#f1afb7}detained . ͏͏͏͏͏͏" {}}$
+ 
 <img width="640" height="350" alt="Untitled46_20251017192816" src="https://github.com/user-attachments/assets/508553c4-ed60-4f53-b361-6db7091e0a2f" />
 ‎‎‎‎‎‎‎⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀_+++Vamp.+++_
 
