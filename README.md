@@ -1,4 +1,10 @@
-## Hi there 👋
+<img width="640" height="297" alt="Untitled48_20251017192510" src="https://github.com/user-attachments/assets/5daea909-6c93-4fea-93b2-7e22bedd2065" />
+
+‎ ͏ ͏͏͏͏͏͏ ͏͏͏͏͏͏ ͏͏͏͏͏͏⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ͏͏͏͏͏͏ ͏͏͏͏͏͏${\color{*#2596be*}' your men .. have been *DETAINED.* '{}}$
+
+<img width="640" height="350" alt="Untitled46_20251017192816" src="https://github.com/user-attachments/assets/508553c4-ed60-4f53-b361-6db7091e0a2f" />
+‎‎‎‎‎‎‎⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀_+++Vamp.+++_
+
 
 <!--
 **brainwashedcia/brainwashedcia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
